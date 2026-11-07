@@ -1,0 +1,1 @@
+# Note8-GalaxyS8-LowTemp-Bypass-magisk-module
